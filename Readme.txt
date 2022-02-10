@@ -1,3 +1,3 @@
-Thanks for seeing my work!
+Thanks for seeing my work
 
-Shubh Rai 🙂
+AKUMA 🙂
